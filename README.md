@@ -11,4 +11,4 @@ luizfgoncalves@prof.educacao.sp.gov.br
 
 @luizfernandogoncalves
 
-![]( https://tenor.com/pt-BR/view/naruto-gif-19427546 ) 
+![](https://media1.tenor.com/m/vtZV-Da3wQYAAAAC/homer-simpson-the-simpsons.gif)
